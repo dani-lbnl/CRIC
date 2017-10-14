@@ -7,3 +7,7 @@ Ilana Rowy
 
 The colposcope
 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3279084/pdf/prenatal-02-0019.pdf
+
+# Videos:
+
+- Staging cervical cancer [link](https://youtu.be/TzNtTAjp5Ok)
